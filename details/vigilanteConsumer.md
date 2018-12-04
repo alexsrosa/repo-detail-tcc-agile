@@ -7,3 +7,5 @@ The consumer manipulates marketers and the marketplace through pressure, protest
 O consumidor manipula os profissionais de marketing e o mercado por meio de pressão, protesto e política.​
 
 ## Detalhamento: 
+
+Os consumidores, cada vez mais conscientes, exercem pressão com protestos.

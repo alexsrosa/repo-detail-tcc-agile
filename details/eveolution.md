@@ -1,4 +1,4 @@
-### EVEolution (Feminina Mente)
+### EVEolution (Pensamento feminino)
 
 The way women think and behave is impacting business, causing a marketing shift away from a hierarchical model to a relational one.
 
